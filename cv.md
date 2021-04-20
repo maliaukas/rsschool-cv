@@ -1,5 +1,5 @@
 # Aliaksandra Maliauka
-maliaukas@gmail.com | [t.me/maliaukas](https://t.me/maliaukas)
+[maliaukas@gmail.com](mailto:maliaukas@gmail.com) | [t.me/maliaukas](https://t.me/maliaukas)
 
 ## Education
 
