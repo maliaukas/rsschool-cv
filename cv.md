@@ -10,3 +10,4 @@ maliaukas@gmail.com | [t.me/maliaukas](https://t.me/maliaukas)
 * SQL
 * Git
 * Android SDK
+* English: B1
